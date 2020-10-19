@@ -1,6 +1,6 @@
 ![介紹圖](http://www.princessconnect.so-net.tw/images/ft_pic01.png)
 
-<h1>為什麼<br />你應該玩<br />《超異域公主連結☆Re:Dive》?</h1>
+<h1>為什麼你應該玩<br />《超異域公主連結☆Re:Dive》?</h1>
 
 - [咕嚕靈波（●´∀｀）ノ♡](https://www.youtube.com/watch?v=1sxGsm1lz_k)
 - [議員都在玩](https://www.4gamers.com.tw/news/detail/37520/city-council-member-plays-cygames-princess-connect-re-dive)
