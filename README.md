@@ -13,3 +13,6 @@
 
 [![Download on the App Store](http://www.princessconnect.so-net.tw/images/app_store_badge_b.png)](https://apps.apple.com/tw/app/id1390473317)
 [![Get it on Google Play](http://www.princessconnect.so-net.tw/images/google-play-badge_b.png)](https://play.google.com/store/apps/details?id=tw.sonet.princessconnect)
+
+
+![廣告圖](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.0-9/122834809_3392831037460592_2489339149160837363_o.jpg)
