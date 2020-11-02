@@ -1,3 +1,9 @@
+<h2 align="center"> ★3 #優衣(公主) 轉蛋進行中</h2>
+
+![優衣（公主）](https://user-images.githubusercontent.com/65301509/97899167-e37d0d00-1d73-11eb-8ca6-c3a96b98d126.png)
+
+---
+
 ![介紹圖](http://www.princessconnect.so-net.tw/images/ft_pic01.png)
 
 <h1>為什麼你應該玩<br />《超異域公主連結☆Re:Dive》?</h1>
@@ -13,5 +19,3 @@
 
 [![Download on the App Store](http://www.princessconnect.so-net.tw/images/app_store_badge_b.png)](https://apps.apple.com/tw/app/id1390473317)
 [![Get it on Google Play](http://www.princessconnect.so-net.tw/images/google-play-badge_b.png)](https://play.google.com/store/apps/details?id=tw.sonet.princessconnect)
-
-![優衣（公主）](https://user-images.githubusercontent.com/65301509/97899167-e37d0d00-1d73-11eb-8ca6-c3a96b98d126.png)
