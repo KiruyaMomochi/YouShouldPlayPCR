@@ -1,6 +1,6 @@
-<h2 align="center"> ★3 #優衣(公主) 轉蛋進行中</h2>
+<h2 align="center"> 《超異域公主連結☆Re:Dive》日版 x《Re：從零開始的異世界生活》<br/>合作活動將復刻登場<i>！</i></h2>
 
-![優衣（公主）](https://user-images.githubusercontent.com/65301509/97899167-e37d0d00-1d73-11eb-8ca6-c3a96b98d126.png)
+![](https://priconne-redive.jp/ele-wp/wp-content/uploads/2020/11/8f8c22dda2c6f757618422e9c9879a68.jpg)
 
 ---
 
