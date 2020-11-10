@@ -1,6 +1,8 @@
 <h2 align="center"> 《超異域公主連結☆Re:Dive》日版 x《Re：從零開始的異世界生活》<br/>合作活動將復刻登場<i>！</i></h2>
 
-![](https://priconne-redive.jp/ele-wp/wp-content/uploads/2020/11/8f8c22dda2c6f757618422e9c9879a68.jpg)
+<p align="center">
+  <img src="https://priconne-redive.jp/ele-wp/wp-content/uploads/2020/11/8f8c22dda2c6f757618422e9c9879a68.jpg">
+</p>
 
 ---
 
