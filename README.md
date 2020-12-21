@@ -1,7 +1,7 @@
-<h2 align="center"> Pre-register for Princess Connect! Re: Dive Now<i>!</i></h2>
+<h2 align="center"> Princess Kyaru! <i>!</i></h2>
 
 <p align="center">
-  <img src="https://pbs.twimg.com/media/Eo_RXZRVgAEC4J-?format=jpg&name=large">
+  <img src="https://i.loli.net/2020/12/21/dgFVGKN9LMoAxqC.png">
 </p>
 
 ---
