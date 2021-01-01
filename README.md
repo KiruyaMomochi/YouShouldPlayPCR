@@ -1,7 +1,7 @@
-<h2 align="center"> Princess Kyaru <i>!</i></h2>
+<h2 align="center"> New Year Event <i>!</i></h2>
 
 <p align="center">
-  <img src="https://i.loli.net/2020/12/21/dgFVGKN9LMoAxqC.png">
+  <img src="https://pbs.twimg.com/media/EqiMNV2VEAEzXh3?format=jpg&name=large">
 </p>
 
 ---
